@@ -56,3 +56,5 @@ https://wwz.lanzoul.com/b02doc8yj
 +多账号数量无限制
 
 +修改部分代码
+
+![image](https://github.com/Larrypagoogle/xxqg-/blob/abc49706ce18c84108cca7a669eb4dd583fa0c9f/image/shouye.jpg)
